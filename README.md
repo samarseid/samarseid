@@ -5,7 +5,7 @@
 - 📫 Contact me
 - ☕ Email: samarseid08@gmail.com 
 - 📨 Instagram: samar_.seid 
-- 🌐 Telegram: Samarseid 
+- 🌐 Telegram: @Samarseid 
   
 
 <!---
